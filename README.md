@@ -1,1 +1,1 @@
-# internet-shopgithub.io
+# internetshopgithub.io
